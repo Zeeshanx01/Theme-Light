@@ -1,2 +1,2 @@
 # Theme Light
-I didn't create this website, but if you're interested in a similar website design, feel free to reach out to me. 
+If you're interested in exploring options for a website design similar to this one, please don't hesitate to contact me. I'd be happy to discuss your needs and provide further assistance
